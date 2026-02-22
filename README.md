@@ -1,0 +1,1 @@
+# stealgg-strona
